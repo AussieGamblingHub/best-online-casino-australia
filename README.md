@@ -43,7 +43,7 @@ QUICKWIN has quickly established itself as the best online casino in Australia, 
 #### Why QUICKWIN Tops Our List:
 
 - **Massive Game Library**: Over 2,500 titles from leading providers including pokies, progressive jackpots, and table games
-- **Superior Welcome Bonus**: New players receive a 250% match up to $4,000 AUD plus 150 free spins
+- **Superior Welcome Bonus**: New players receive a 250% match up to $4,500 AUD plus 150 free spins
 - **Lightning-Fast Payouts**: Most withdrawals processed within 1-24 hours
 - **Exceptional Mobile Experience**: Fully optimized for all devices with no app download required
 - **24/7 Australian Customer Support**: Native English-speaking representatives available via live chat
