@@ -34,7 +34,7 @@ Each online casino on our list has been thoroughly vetted against these criteria
 
 After extensive testing and evaluation, these are the top 5 best online casino sites for Australian players in 2025:
 
-## QUICKWIN - Australias Best Online Casino & Bookie Site
+## ![QUICKWIN](https://aussiegamblinghub.com/gambling-sites/march-2025-update/quickwin) - Australias Best Online Casino & Bookie Site
 
 ![QuickWin Casino](https://i.imgur.com/X20YfVE.png)
 
