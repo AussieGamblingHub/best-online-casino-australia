@@ -336,4 +336,4 @@ For the latest updates and discussions about Australian online casinos, join our
 
 *Disclaimer: This information is intended for adults aged 18+ and for entertainment purposes only. Online gambling involves risk and may not be legal in all jurisdictions. Always gamble responsibly and be aware of the relevant laws in your location.*
 
-*Last updated: March 13, 2025 - Information subject to change as casino offerings are regularly updated.*
+*Last updated: March 19, 2025 - Information subject to change as casino offerings are regularly updated.*
