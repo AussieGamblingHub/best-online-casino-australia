@@ -10,7 +10,7 @@ Our team of experienced gambling experts has thoroughly tested dozens of online 
 
 | Rank | Casino   | Rating  | Welcome Bonus                                         | Payout Speed       | Game Count | Best For                                      |
 |------|----------|---------|------------------------------------------------------|--------------------|------------|-----------------------------------------------|
-| #1   | [**SPINSY**](https://aussiegamblinghub.com/gambling-sites/march-2025-update/spinsy)  | 4.9/5⭐   | 250% up to $4,000 + 150 Free Spins                 | 1-3 days           | 10,000+    | Largest game selection & PayID payments      |
+| #1   | [**SPINSY**](https://aussiegamblinghub.com/gambling-sites/march-2025-update/spinsy)  | 4.9/5⭐   | 250% up to $4,000 + 150 Free Spins                 | 1-24 hours           | 10,000+    | Largest game selection & PayID payments      |
 | #2   | [**QUICKWIN**](https://aussiegamblinghub.com/gambling-sites/march-2025-update/quickwin) | 4.8/5⭐   | 250% up to $4,500 + 150 Free Spins                 | 1-24 hours         | 2,500+     | Best overall experience & fast payouts       |
 | #3   | [**JACKBIT**](https://aussiegamblinghub.com/gambling-sites/march-2025-update/jackbit)  | 4.8/5⭐   | 100 Wager-Free Spins                      | Minutes (crypto)   | 6,600+     | Crypto users & instant withdrawals           |
 | #4   | [**VEGASINO**](https://aussiegamblinghub.com/gambling-sites/march-2025-update/vegasino) | 4.7/5⭐   | 250% up to $4,000 + 150 Free Spins + Bonus Crab    | 24-48 hours        | 4,000+     | Premium live dealer games & VIP rewards      |
